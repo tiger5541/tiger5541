@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @tiger5541
+- 👀 I’m interested in art
+- 🌱 I’m currently learning chess
